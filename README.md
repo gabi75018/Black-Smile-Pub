@@ -5,6 +5,8 @@ Black smile est un serveur français publique publicitaire ayant comme but premi
 ## Nos évenements du moment : **SPECIALE Halloween !**
 * `Recherche énorme de citrouille dans le serveur` : _Dès le 30 octobre et jusqu'au 2 novembre_
 * `Décoration énorme du serveur pour Halloween` : _Dès le 20 octobre et jusqu'au 5 novembre_
+**Dès maintenant sur Black Smile :**
+* `Super Giveaway de rentrée !` : _Dès le 10 septembre et jusqu'au 13 septembre_
 
 ***
 
